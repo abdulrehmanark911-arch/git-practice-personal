@@ -9,5 +9,5 @@ that's my new job
 yes 
 thank you!
 what's do you do 
-brother
+bro
 nothing is special
