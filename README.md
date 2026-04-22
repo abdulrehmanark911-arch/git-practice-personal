@@ -12,4 +12,7 @@ what's do you do
 bro
 nothing is special
 go back to workgit
-did you know
+diD YOU know what do you mean by that
+alright
+not at 
+all
